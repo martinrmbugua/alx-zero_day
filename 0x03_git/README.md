@@ -1,0 +1,1 @@
+trainig coding is hard
